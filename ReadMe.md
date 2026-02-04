@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working as software engineer<br>👯 I’m open for collaborations<br>🤝 I’m looking for help in improving <br>🌱 I’m currently learning new tech<br>💬 Ask me about<br>⚡ Fun fact
+🔭 I’m currently working as software engineer<br>👯 I’m open for collaborations<br>🤝 I’m looking for help in improving my self <br>🌱 I’m currently learning new tech<br>💬 Ask me about<br>⚡ Fun fact
 
 
 ## 🌐 Socials:
